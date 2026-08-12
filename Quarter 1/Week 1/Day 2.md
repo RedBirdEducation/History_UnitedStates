@@ -19,6 +19,6 @@ Watch this video for more about Native Americans before European settlers arrive
 
 ### Assignments:
 1. Reference **the textbook reading** and write down a KWL:
-  * **K**now - What is 1 thing you already knew?
-  * **W**hat - What are 2 questions you still have about the material?
-  * **L**earn - What are 3 things you learned?
+   * **K**now - What is 1 thing you already knew?
+   * **W**hat - What are 2 questions you still have about the material?
+   * **L**earn - What are 3 things you learned?
