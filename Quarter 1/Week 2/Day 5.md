@@ -1,4 +1,4 @@
-# Day 5: Discovery of America
+# Day 5: Spanish Explorers
 
 When Christopher Columbus discovered the New World, he did so on behalf of Spain. Therefore, the Spaniards were the first to colonize the New World. Specifically, the **Conquistadores** were Spanish explorers who came to conquer and claim the New World.
 
