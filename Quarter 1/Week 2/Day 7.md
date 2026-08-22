@@ -17,4 +17,4 @@ As the textbook mentions, the first attempt by the English at a permanent colony
 
 ### Assignments:
 1. Read and drag the sliders on the images on [this page from the National Park Service](https://home.nps.gov/fora/learn/historyculture/major-theories-of-the-lost-colony.htm).
-2. Based off the website above, what theory about the Lost Colony makes the most since to you? Why?
+2. Based off the website above, what theory about the Lost Colony makes the most sense to you? Why?
