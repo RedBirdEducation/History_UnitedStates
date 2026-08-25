@@ -6,16 +6,12 @@ Continuing our discussion on Jamestown, let's look at how the colonists interact
 
 Read the sections about "The Anglo-Powhatan Wars" and "The Rise of Slavery in the Chesapeake Bay Colonies" in [Section 3.3 of the textbook](https://openstax.org/books/us-history/pages/3-3-english-settlements-in-america)
 
-Additionally, watch the following video clips: </br>
-* [The Natives and the English](https://www.youtube.com/watch?v=TTYOQ05oDOI) (stop at 05:45)
-* 
-
+Additionally, watch the following video clip: </br>
+* [How Did Slavery Begin in America?](https://www.youtube.com/watch?v=9L-ag6QHDVA)
+  
 ### Key Concepts to Remember:
-* Joint stock companies
-* Jamestown
+* Pocahontas
+* _The White Lion_
 
 ### Assignments:
-1. Referencing the textbook, write down a KQL:
-  * Know - What is 1 thing you already knew?
-  * What - What are 2 questions you still have about the material?
-  * Learn - What are 3 things you learned?
+1. Complete pages 1-11 of the following interactive lesson: [The Story of Pocahontas](https://tn.pbslearningmedia.org/resource/midlit10.soc.splpoca/the-story-of-pocahontas/)
