@@ -10,3 +10,4 @@ To hear the story of the first Thanksgiving, watch the following video: </br>
 
 ### Assignments:
 1. Complete the following interactive lesson: [Investigating the First Thanksgiving](https://youarethehistorian.org/)
+2. Be aware: test 1 will be next week so be reviewing some of the key concepts.
