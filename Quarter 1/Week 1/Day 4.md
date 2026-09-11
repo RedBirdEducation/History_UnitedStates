@@ -11,7 +11,7 @@ Watch this video to learn why and how Columbus came to the New World: </br>
 
 ### Key Concepts to Remember:
 * New World
-* Christopher Colombus
+* Christopher Columbus
 
 ### Assignments:
 1. Go back through each lesson from this week (Days 1-4) and create something help you remember the key concepts. Here are some ideas, but feel free to be creative:
