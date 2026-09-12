@@ -8,7 +8,7 @@ For the remainder of this week and next week, we'll look at the thirteen origina
 | | Connecticut | Pennsylvania | Georgia |
 | | Rhode Island | Delaware | |
 
-Together, the Chesapeake Bay Colonies and the Puritan Colonies form what are known as the **New England Colonies**. However, the big distinction is that settlers in the Chesapeake Bay Colonies were motivated more by Gold (i.e., search for wealth), while settlers in the Puritan Colonies were motivated more by God (i.e., religious freedom). 
+The Chesapeake Bay Colonies and the Puritan Colonies were both locations for some of the earliest English settlements in the New World. However, the big distinction between the two is that settlers in the Chesapeake Bay Colonies were motivated more by Gold (i.e., search for wealth), while settlers in the Puritan Colonies were motivated more by God (i.e., religious freedom). 
 
 Read the relevant section from the textbook entitled "The Chesapeake Colonies: Virginia and Maryland" (stop at the header "Puritan New England"): [3.3 English Settlements in America](https://openstax.org/books/us-history/pages/3-3-english-settlements-in-america)
 
